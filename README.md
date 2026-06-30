@@ -1,1 +1,1 @@
-https://dew.github.io/saytamlom/
+https://ddew.github.io/saytamlom/
